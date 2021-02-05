@@ -12,6 +12,11 @@ In 1893, the School’s name changed from Saint Augustine Normal School to Saint
 
 The College further extended its mission by establishing St. Agnes Hospital and Training School for Nurses to provide medical care for and by African Americans. It was the first nursing school in the state of North Carolina for African-American students, and served as the only hospital to served African Americans until 1960. One most famous patients to be admitted to St. Agnes was Jack Johnson, the first African-American world heavyweight boxing champion. Johnson was admitted following an accident that ultimately led to his death in 1946.
 
+Another “first” Saint Augustine’s University is especially proud of is that the University was the nation’s first historically black university to own an on-campus commercial radio station (WAUG-AM Power 750) and television station (WAUG-TV 168).
+
+Since the beginning of its existence, Saint Augustine’s University has blazed the trails in academics. Alumna Anna Julia Cooper, who was a prominent writer, educator and scholar, became the fourth African-American woman in united states to earn a doctoral degree. Today, Saint Augustine’s University is proud of preserving its legacy by continuing to ensure scholars are academically equipped to be the global change agents of tomorrow.
+
+
 ### Access Your Grades
 
 The CAMS Enterprise™ Student Portal is a powerful, easy-to-use tool that offers the highest level of security to ensure the confidentiality of students’ sensitive data. Students can register online, check their grades, and submit resumes online anytime, anywhere.
